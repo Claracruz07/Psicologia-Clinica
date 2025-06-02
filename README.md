@@ -1,16 +1,22 @@
-Contato
+ Para Contato
+
 Nome: [Clara Cruz Capobianco]
+
 Especialidade: Psicólogo Clínico e Terapeuta de Casais
+
 Telefone: [17996746605]
+
 E-mail: [claracapeir07@gmail.com]
+
 Local de Atendimento: [cidade:sao jose do rio preto 
 rua:Amazonas N 564 
 bairro:centro]
+
 Redes Sociais: [@claracapeir]
 
 
  Objetivos da Terapia Conjugal
-A terapia conjugal tem como princi´pais objetivos:
+A terapia conjugal tem como principais objetivos:
 
 Fortalecer a Comunicação: Ensinar os casais a se comunicarem de forma clara, honesta e empática, evitando mal-entendidos e promovendo a compreensão mútua.
 
